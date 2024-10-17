@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vexor73
+- 👀 I’m interested in Robotics
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on some ideas that no one ever got in the world and is helpful to society.
+- 😄 Pronouns: He/Him
